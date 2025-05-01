@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yuunyan
 - 👀 I’m interested in games and programming
-- 🌱 I’m currently learning ... global health services
+- 🌱 I’m currently learning global health services
 - 💞️ I’m looking to collaborate on various stuff
 - 📫 How to reach me: secret!
 - 😄 Pronouns: She
