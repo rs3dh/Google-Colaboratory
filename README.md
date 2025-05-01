@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yuunyan
+- 👋 Hi, I’m @yuuna
 - 👀 I’m interested in games and programming
 - 🌱 I’m currently learning global health services
 - 💞️ I’m looking to collaborate on various stuff
